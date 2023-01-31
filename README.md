@@ -102,4 +102,4 @@ Change will come. It always does. Your job is to prepare your brain to stay calm
 
 ---
 
-Everyday I will read this.
+

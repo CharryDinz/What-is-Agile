@@ -100,3 +100,6 @@ An agile mindset is about being flexible and ready for any unpredictable change.
 
 Change will come. It always does. Your job is to prepare your brain to stay calm and collected so that you can handle each emotional wave with ease. If everyone on the team is ready for change, you'll be able to bounce back quickly and refocus energy on solving new problems.
 
+---
+
+Everyday I will read this
